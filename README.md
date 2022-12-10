@@ -1,1 +1,1 @@
-# yaz-l-m-m-hendisli-i-oryantasyon--devi
+https://youtu.be/8rj-pvj-v5U
